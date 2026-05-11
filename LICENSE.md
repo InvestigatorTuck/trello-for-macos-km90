@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with vip Trello for macOS Extension | widgets + version history, the #1 extension. Includes widgets and version history for a smoother experience.
 
 
 
